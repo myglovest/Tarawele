@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Linux networks configuration and system administration**
 
-- 📫 How to reach me **sidiki2025@mail.ru**
+- 📫 How to reach me **turaman99@gmail.com**
 
 - ⚡ Fun fact **I think I like to sleep**
 
